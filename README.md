@@ -2,11 +2,11 @@
 
   
   
-![](https://64.media.tumblr.com/808db1dde169ed86e6ff634a0a692c2d/b48cb2dcdb51804a-bb/s2048x3072/3a7222ae1422d35ed756e9b670660e9f06168193.pnj)
+![](https://64.media.tumblr.com/74666f1ab703ea7ef9c5d304ef815ee3/c91f6dee79a43e29-2c/s1280x1920/6780733429ac0e2b02d7766679e95b5f0baf8cd3.pnj)
 
 
 
 
 
 
-[୭ ˚. ᵎᵎ](https://www.tumblr.com/frilliette)
+[୭ ˚. ᵎᵎ](https://www.tumblr.com/cutelvr)
